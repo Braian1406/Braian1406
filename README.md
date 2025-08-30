@@ -1,3 +1,6 @@
-## Hi there 👋
+## Hola, soy Braian Rodríguez
 
-Mi Nombre es Braian, ejerzo como Oficial del Ejército Nacional a la vez que estudio Datos y Negocios en la UCU. 
+Ejerzo como Oficial del Ejército Nacional. 
+Soy estudiante de la Licenciatura en Datos y Negocios.
+Busco participar de proyectos innovadores en el área de las ciencias económicas. 
+
